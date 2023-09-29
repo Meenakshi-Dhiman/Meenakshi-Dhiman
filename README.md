@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Meenakshi-Dhiman
+- Passionate Data Analyst 📊
+- Exploring Insights in Numbers 📈
+- Python 🐍 & SQL 💼 Enthusiast
+- Love Turning Raw Data into Actionable Insights 💡
+- Always Eager to Learn and Collaborate 🤝"
+- 📫 If you wish to collaborate or ask anything, can reach me out at linkedIn "www.linkedin.com/in/meenakshimeenakshi"
